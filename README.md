@@ -1,6 +1,6 @@
-### Hi there 👋
-<img align="right" src="https://github-readme-stats.vercel.app/api?username=smilezxlee" style="height:150px;">
+<img align="right" src="https://github-readme-stats.vercel.app/api?username=smilezxlee" style="height:150px;">  
 
+### Hi there 👋
 * 喜欢写字✍️
 * 喜欢科幻悬疑类的电影
 * 梦想当一个奶茶店店员
