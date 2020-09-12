@@ -1,5 +1,4 @@
 ### Hi there 👋
-<img align="right" src="http://www.zxlee.cn/github/public/mycalligraphy.png" style="height:200px;">
 <img align="right" src="https://github-readme-stats.vercel.app/api?username=smilezxlee" style="height:150px;">
 
 * 喜欢写字✍️
