@@ -7,6 +7,14 @@
 * 最近：健身💪🏻
 * 交流qq群：[790460711](https://jq.qq.com/?_wv=1027&k=vU2fKZZH)
 
+```
+2023新年快乐！！🎉🧨🎉🧨  
+（`・ω・)つ━☆・*。祝大家在新的一年里工作顺利，事事顺心！    
+工作再忙，也要记得照顾好自己･◡･
+```
+
 ![visitors](https://visitor-badge.glitch.me/badge?page_id=smilezxlee.smilezxlee.readme)
+
+
 
 
