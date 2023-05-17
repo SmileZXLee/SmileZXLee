@@ -5,15 +5,7 @@
 * 喜欢科幻悬疑类的电影🎬
 * 喜欢编程，希望能造更多有趣的轮子👨‍💻‍
 * 最近：健身💪🏻
-* 交流qq群：[790460711](https://jq.qq.com/?_wv=1027&k=vU2fKZZH)
-
-```
-2023新年快乐！！🎉🧨🎉🧨  
-（`・ω・)つ━☆・*。祝大家在新的一年里工作顺利，事事顺心！    
-工作再忙，也要记得照顾好自己･◡･
-```
-
-![visitors](https://visitor-badge.glitch.me/badge?page_id=smilezxlee.smilezxlee.readme)
+* 交流qq群：1群(已满)：[790460711](https://jq.qq.com/?_wv=1027&k=vU2fKZZH)；2群：[371624008](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=avPmibADf2TNi4LxkIwjCE5vbfXpa-r1&authKey=dQ%2FVDAR87ONxI4b32Py%2BvmXbhnopjHN7%2FJPtdsqJdsCPFZB6zDQ17L06Uh0kITUZ&noverify=0&group_code=371624008)
 
 
 
